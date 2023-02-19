@@ -3,6 +3,5 @@
  
  
 
-
-![ezgif-2-67f0ce380e](https://user-images.githubusercontent.com/100529581/219967073-314872ee-c6bd-4a35-803a-c9c0d40eee0b.gif)
+![minetest-237915085(1)](https://user-images.githubusercontent.com/100529581/219967168-c10e4a1e-8d26-4517-b57c-8e4ba950a549.png)
 
