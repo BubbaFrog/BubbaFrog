@@ -38,3 +38,4 @@ istmas![irish tsuyu](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/647
 ![froppy soldier](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/342e5987-3fff-4344-a3cb-e18097a52ef7)
 
 
+![picture](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/3aef113e-7278-4946-81fd-603c7af8c417)
