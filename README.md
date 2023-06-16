@@ -1,4 +1,3 @@
-![froppy waco](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/755c45d4-6902-4e44-8494-6b36c73ac072)
  Welcome To BubbaFrogs pond  
  
  
@@ -35,4 +34,7 @@ llvidians](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/e1c78abd-27cb
 tps://github.com/BubbaFrog/BubbaFrog/assets/100529581/a46bd076-89fb-4c25-97fa-4b6298c73f08)
 istmas![irish tsuyu](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/647c6a7e-0af3-4f1b-8251-8d6141eca1b1)
 ](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/c89e5065-de0c-4c19-9e1f-fa084448e176)
+![froppy waco](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/7116e371-6b09-4c57-a62c-529301da7ca2)
+![froppy soldier](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/342e5987-3fff-4344-a3cb-e18097a52ef7)
+
 
