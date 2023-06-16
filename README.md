@@ -39,3 +39,7 @@ istmas![irish tsuyu](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/647
 
 
 ![picture](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/3aef113e-7278-4946-81fd-603c7af8c417)
+
+
+![fed trollge](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/ea2d3cd5-90fd-4c1c-9cd1-49f38a868048)
+![new picturee](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/414b8d6c-3fb0-4dd1-bf85-107341564fec)
