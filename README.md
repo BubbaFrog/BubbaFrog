@@ -47,3 +47,8 @@ istmas![irish tsuyu](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/647
 ![meme pack](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/36f4650b-6862-4179-9fa0-5c8ca5b3edf7)
 
 ![weeaboo ira](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/5dfc7877-07be-490b-848a-d1599f7fb0e8)
+![genlee video pic](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/b8da6a39-ccf0-46dc-b8d5-1ec1fd221d4f)
+![e = mc strong ](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/31a32c1b-e372-4d78-bfca-d581068f7c59)
+![kyle chungus](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/7ed20152-3428-42c1-b290-6ee0a8e2ce03)
+![external-content duckduckgo com(2)](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/f5349710-429f-4620-89e2-c7cde1bb0829)
+![github_picture](https://github.com/BubbaFrog/BubbaFrog/assets/100529581/d5ebfaf2-a008-4b54-9e58-fd5d3029ddc1)
